@@ -1,4 +1,4 @@
-Hi, I’m Tatiana Mihai, a Software Engineer with 10+ year experience.
+Hi, I’m Tatsiana Mihai, a Staff Engineer with 12+ year experience.
 
 [LinkedIn](https://www.linkedin.com/in/tatiana-migai-0008755b/)
 
